@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-07-19 | [Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)](https://cn.bing.com/th?id=OHR.OmijimaIsland_EN-US2811609327_UHD.jpg) 
+
 2022-07-16 | [The village of Arrone in Umbria, Italy (© Maurizio Rellini/eStock Photo)](https://cn.bing.com/th?id=OHR.Arrone_EN-US2438328393_UHD.jpg) 
 
 2022-07-15 | [Baby lemon sharks swimming among mangroves near Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)](https://cn.bing.com/th?id=OHR.BabyLemons_EN-US8232804860_UHD.jpg) 
